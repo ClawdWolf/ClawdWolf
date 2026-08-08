@@ -4,4 +4,4 @@
 
 <div align= center>
 
-<img width="1125" height="720" alt="clawddd" src="https://files.catbox.moe/2bhbvd.png" />
+<img width="4076" height="2700" alt="clawdwolf rentry colorr" src="https://github.com/user-attachments/assets/a30d32c6-f4e4-4612-97ba-51e87c720a41" />
